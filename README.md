@@ -1,3 +1,6 @@
+![Logo](http://thuanloi.edu.vn/wp-content/uploads/2024/04/Avata_HDL.png)
+
+
 ### Hi there 👋
 
 <!--
