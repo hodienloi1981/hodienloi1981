@@ -1,4 +1,4 @@
-<img src="http://thayloi.edu.vn/wp-content/uploads/2024/04/Avata_HDL.png" width="200"/>
+<img src="https://avatars.githubusercontent.com/u/103028355?s=400&u=7e36ffbeeef70f5ac80ae0d028c6485da8f10d34&v=4" width="200"/>
 
 ### HỒ DIÊN LỢI
 
